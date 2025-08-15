@@ -31,3 +31,13 @@ Una bebida fría y deliciosa que mezcla café, leche, caramelo salado y hielo, d
 Una explosión de sabores exóticos con mango, piña, papaya y un toque de coco, ideal para refrescar el paladar.
 - Té Helado Chai con Leche de Almendras:
 Una opción reconfortante y especiada, con té chai, leche de almendras, hielo y un toque de miel.
+
+## Consejos
+- Conoce los ingredientes: Familiarízate con los ingredientes básicos de repostería y sus funciones.
+- Organización: Prepara todos tus ingredientes y utensilios antes de empezar a cocinar.
+- Utensilios: Asegúrate de tener los utensilios necesarios para la receta, como batidoras, moldes, etc. 
+- Mezcla correctamente: Mezcla los ingredientes secos por separado y los húmedos por separado antes de combinarlos, esto ayuda a obtener una mejor textura. 
+- No batir en exceso: Batir demasiado las masas puede afectar la textura del postre final. 
+- Sigue la receta: Respeta los tiempos de cocción, reposo y refrigeración indicados en la receta. 
+- Domina el horneado: Asegúrate de que el horno esté a la temperatura correcta y no abras la puerta durante los primeros minutos de cocción. 
+- Controla la temperatura: Si usas ingredientes como huevos o mantequilla, asegúrate de que estén a temperatura ambiente para una mejor integración. 
