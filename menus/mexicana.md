@@ -13,3 +13,9 @@ La gastronomía mexicana es rica y variada, caracterizada por sus sabores intens
 - Agua de Jamaica: Una infusión de flor de hibisco, con un sabor ácido y refrescante.
 - Agua de tamarindo: Elaborada con la pulpa del tamarindo, equilibrando lo dulce y lo ácido.
 - Atole: Una bebida caliente hecha a base de masa de maíz, agua y azúcar, con diversas variaciones regionales.
+
+## Consejos
+- Optar por carnes magras como pollo o pescado
+- Evitar salsas cremosas y productos lácteos
+- Preferir tortillas de maíz sobre las de harina
+- Elige métodos de cocción como a la parrilla o al vapor
