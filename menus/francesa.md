@@ -10,4 +10,14 @@ se caracteriza por su refinamiento, la alta calidad de sus ingredientes y la div
 - Pot-au-feu: Un cocido de carne de res y verduras, cocinado a fuego lento en un caldo aromático. 
 - Ratatouille: Un guiso de verduras como berenjenas, calabacines, tomates y pimientos, originario de Provenza. 
 - Hachis Parmentier: Un pastel de carne picada cubierto de puré de patatas y gratinado. 
-- Poulet Basquaise: Un plato de pollo guisado con pimientos, tomates y jamón, típico del País Vasco francés. 
+- Poulet Basquaise: Un plato de pollo guisado con pimientos, tomates y jamón, típico del País Vasco francés.
+
+## Bebidas Recomendadas
+- Vinos tintos: Ideales para platos de carne roja, como el Châteauneuf-du-Pape o Bandol. 
+- Vinos blancos: Perfectos para aves y mariscos, como un Chardonnay. 
+- Vino de Borgoña: Conocido por sus vinos tintos y blancos de alta calidad. 
+- Vino de Burdeos: Famoso por sus tintos robustos. 
+- Champán: Ideal para celebraciones y maridajes con diversos platos, especialmente por su versatilidad y acidez.
+- Coñac: Un brandy francés que se puede disfrutar solo o usado en la cocina para realzar sabores de platos como el pollo al coñac o flambeado en postres como la crêpe Suzette. 
+- Armañac: Otro brandy francés, excelente para platos como el foie gras o postres con frutas. 
+- Pastis: Un licor de anís, a menudo utilizado en la cocina provenzal para guisos o marinados de mariscos. 
