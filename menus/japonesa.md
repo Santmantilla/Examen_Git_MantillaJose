@@ -15,3 +15,10 @@ Se caracteriza por su sencillez, elegancia y énfasis en ingredientes frescos y 
 - Vino: Los vinos blancos semidulces o afrutados, así como los rosados y espumosos, son buenas opciones para acompañar sushi.
 - Umeshu: El Umeshu, un vino de ciruela, es una opción nutritiva y deliciosa, especialmente como aperitivo. 
 - Cócteles: Un Sake Spritz con Bitter Rosso puede ser una opción exótica y sabrosa para acompañar sushi.
+
+## Consejos
+- Palillos: Si no te sientes cómodo con los palillos, puedes usar las manos para comer sushi. 
+- Salsa de soja: Moja solo el pescado en la salsa de soja, no el arroz, para evitar que se sature. 
+- Wasabi: Usa el wasabi con moderación, ya que es un sabor fuerte que puede opacar el resto de los ingredientes. 
+- Jengibre: El jengibre encurtido (gari) se utiliza para limpiar el paladar entre bocado y bocado, no para comerlo con el sushi. 
+- Bocado: Intenta comer cada pieza de sushi de un solo bocado.
