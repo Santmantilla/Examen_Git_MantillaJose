@@ -18,3 +18,9 @@ Se caracteriza por su riqueza en sabores, aromas y especias, con una amplia vari
 - Masala Chai: El masala chai es un té negro especiado muy popular en la India. Se elabora con una mezcla de especias como cardamomo, canela, jengibre, clavo y pimienta negra, entre otras. Es una bebida reconfortante y aromática, perfecta para disfrutar en cualquier momento del día. 
 - Leche Dorada (Golden Milk): Esta bebida, también conocida como cúrcuma latte, se prepara con leche (o bebida vegetal) y cúrcuma, y a menudo se añaden otras especias como jengibre y canela. La leche dorada es famosa por sus propiedades antiinflamatorias y por su sabor cálido y reconfortante. 
 - Cerveza: Aunque pueda sorprender, la cerveza, especialmente las variedades más potentes, puede ser una excelente opción para acompañar comidas indias picantes, ya que ayuda a limpiar el paladar y a equilibrar los sabores. Las cervezas indias también son una buena opción, ya que están diseñadas para complementar la cocina local. 
+
+## Consejos
+- Comer con las manos: Si decides comer con las manos, usa solo la derecha. 
+- Etiqueta: Evita hablar con la boca llena y disfruta de la comida con atención. 
+- Porciones: Presta atención al tamaño de las porciones y evita comer en exceso. 
+- Sobras: Si te sobra comida, llévala contigo o pídele al restaurante que te la empaquete.
