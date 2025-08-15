@@ -11,3 +11,10 @@ se centra en platos que excluyen carne, aves y pescado, utilizando principalment
 - Frutos secos.
 - Especias y hierbas.
 - Otros alimentos como algas (aunque algunos vegetarianos estrictos las consideran no comestibles por la misma razón que otros la consideran no kosher: la posibilidad de que diversos animales diminutos puedan estar adheridos a ellas).
+
+## Bebidas Recomendadas
+- Smoothies: Una excelente manera de incorporar frutas y verduras a la dieta. Puedes experimentar con diferentes combinaciones, como el smoothie de piña colada, smoothie de zanahoria o incluso un smoothie de aguacate y chocolate. 
+- Leches vegetales: Las leches de almendras, soja, avena, arroz, y coco son alternativas populares a la leche de vaca y pueden usarse en diversas preparaciones, desde batidos hasta sopas. 
+- Aguas frescas: Agrega frutas frescas como pepino, limón, o fresas al agua para crear bebidas refrescantes y naturales. También puedes probar con agua de chía y limón para un aporte extra de nutrientes, según SOW.cl. 
+- Bebidas calientes: Para el invierno, puedes disfrutar de un latte de calabaza casero o un matcha latte con leche vegetal, según Almalibre Açaí House. 
+- Bebidas alcohólicas: La mayoría de las bebidas alcohólicas son aptas para vegetarianos, incluyendo el vino, la cerveza y licores como ginebra, vodka, y ron. Sin embargo, es importante verificar que no contengan aditivos de origen animal, según La Guía Veg. 
