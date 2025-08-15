@@ -21,3 +21,11 @@ es un sistema culinario diverso y antiguo, conocido por sus sabores intensos, es
 - Cerveza lager: Una cerveza ligera y refrescante, especialmente adecuada para platos picantes. 
 - Sake: Un vino de arroz japonés, versátil y que combina bien con sushi y platos de mariscos. 
 - Baijiu: Un licor chino tradicional, fuerte y con sabores únicos, que se consume en muchas ocasiones sociales en China. 
+
+## Consejos
+- Ingredientes: Ten todos los ingredientes listos antes de empezar a cocinar. Esto incluye cortar verduras, marinar carnes y tener las salsas preparadas.
+- Salteado: El salteado (stir-fry) es una técnica fundamental. Calienta el wok o sartén a fuego alto y usa aceites con un punto de humo alto, como el de canola o maní. 
+- Marinado: Marinar la carne es esencial. El ajo, jengibre y salsa de soja son buenos adobos. 
+- Espesado: Usa una mezcla de maicena y agua fría para espesar las salsas.
+- Verduras: No tengas miedo de experimentar con diferentes verduras y ajusta las recetas a tu gusto. 
+- Carnes y pescados: Corta la carne a contrapelo para que quede más tierna y córtala en trozos uniformes para una cocción pareja, según The Spruce Eats.
