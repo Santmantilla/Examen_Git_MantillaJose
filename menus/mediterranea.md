@@ -13,3 +13,9 @@ es una gastronomía rica y diversa, originaria de la región del Mediterráneo, 
 - Moussaka: Un plato griego con capas de berenjenas, carne (cordero o ternera) y tomates, similar a una lasaña. 
 - Bouillabaisse: Una sopa de pescado y mariscos francesa, originaria de Provenza, con verduras, hierbas y especias. 
 - Briami: Un plato vegetariano griego con verduras al horno, como calabacín, patatas, cebolla y tomates.
+
+## Bebidas Recomendadas
+- Infusiones: Como té, manzanilla o menta, especialmente si se prefiere evitar la cafeína. 
+- Vino tinto: Con moderación, una copa para mujeres y dos para hombres. 
+- Cerveza: También es una bebida tradicional en la dieta mediterránea y se consume con moderación, especialmente en compañía de amigos y familiares, y puede ser parte de la cultura social de la región. 
+- Cócteles: Como Agua de Valencia (naranja, vodka, ginebra, cava) o cócteles con ingredientes frescos y herbales, como la limonada de lavanda.
