@@ -1,0 +1,28 @@
+# Menú Cocina Mediterránea
+
+## Descripción
+es una gastronomía rica y diversa, originaria de la región del Mediterráneo, que se caracteriza por el uso de ingredientes frescos y locales, como el aceite de oliva, verduras, legumbres, pescados y frutas. Se distingue por su equilibrio entre alimentos de origen vegetal y animal, con un consumo moderado de carne y lácteos, y un énfasis en el uso de hierbas y especias.
+
+## Platos Principales
+- Paella: Un clásico español, especialmente de Valencia, elaborado con arroz y diversos ingredientes como mariscos, pollo, verduras y especias. 
+- Cuscús: Un plato norteafricano a base de sémola de trigo, a menudo acompañado de verduras y carne. 
+- Hummus: Una pasta espesa de garbanzos, tahini, aceite de oliva, limón y ajo, popular en el Medio Oriente y utilizada como dip o untable. 
+- Pastas italianas: Con una gran variedad de formas y salsas, como la pasta con salsa de tomate y aceite de oliva, o la carbonara. 
+- Ratatouille: Un guiso de verduras francés con berenjenas, calabacines, pimientos, tomates y aceite de oliva. 
+- Falafel: Bolas de garbanzos fritas, típicas de Oriente Medio, servidas con pan pita y salsas. 
+- Moussaka: Un plato griego con capas de berenjenas, carne (cordero o ternera) y tomates, similar a una lasaña. 
+- Bouillabaisse: Una sopa de pescado y mariscos francesa, originaria de Provenza, con verduras, hierbas y especias. 
+- Briami: Un plato vegetariano griego con verduras al horno, como calabacín, patatas, cebolla y tomates.
+
+## Bebidas Recomendadas
+- Infusiones: Como té, manzanilla o menta, especialmente si se prefiere evitar la cafeína. 
+- Vino tinto: Con moderación, una copa para mujeres y dos para hombres. 
+- Cerveza: También es una bebida tradicional en la dieta mediterránea y se consume con moderación, especialmente en compañía de amigos y familiares, y puede ser parte de la cultura social de la región. 
+- Cócteles: Como Agua de Valencia (naranja, vodka, ginebra, cava) o cócteles con ingredientes frescos y herbales, como la limonada de lavanda.
+
+## Consejos
+- Frutas y verduras: Son la base de la dieta, así que consume una variedad de frutas y verduras frescas de temporada en cada comida. 
+- Grasas saludables: El aceite de oliva virgen extra es la principal fuente de grasa. Úsalo para cocinar y aderezar tus platos. 
+- Pescado y mariscos: Incluye pescado blanco y azul (como salmón, atún, trucha) al menos dos veces por semana. Son ricos en omega-3. 
+- Granos integrales: Opta por panes integrales, arroz integral, quinoa y otros granos no refinados. 
+- Carnes y aves: Limita el consumo de carnes rojas y prioriza aves como pollo o pavo. Elige cortes magros y consúmelos con moderación.
