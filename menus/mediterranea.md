@@ -19,3 +19,10 @@ es una gastronomía rica y diversa, originaria de la región del Mediterráneo, 
 - Vino tinto: Con moderación, una copa para mujeres y dos para hombres. 
 - Cerveza: También es una bebida tradicional en la dieta mediterránea y se consume con moderación, especialmente en compañía de amigos y familiares, y puede ser parte de la cultura social de la región. 
 - Cócteles: Como Agua de Valencia (naranja, vodka, ginebra, cava) o cócteles con ingredientes frescos y herbales, como la limonada de lavanda.
+
+## Consejos
+- Frutas y verduras: Son la base de la dieta, así que consume una variedad de frutas y verduras frescas de temporada en cada comida. 
+- Grasas saludables: El aceite de oliva virgen extra es la principal fuente de grasa. Úsalo para cocinar y aderezar tus platos. 
+- Pescado y mariscos: Incluye pescado blanco y azul (como salmón, atún, trucha) al menos dos veces por semana. Son ricos en omega-3. 
+- Granos integrales: Opta por panes integrales, arroz integral, quinoa y otros granos no refinados. 
+- Carnes y aves: Limita el consumo de carnes rojas y prioriza aves como pollo o pavo. Elige cortes magros y consúmelos con moderación.
