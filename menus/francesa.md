@@ -21,3 +21,13 @@ se caracteriza por su refinamiento, la alta calidad de sus ingredientes y la div
 - Coñac: Un brandy francés que se puede disfrutar solo o usado en la cocina para realzar sabores de platos como el pollo al coñac o flambeado en postres como la crêpe Suzette. 
 - Armañac: Otro brandy francés, excelente para platos como el foie gras o postres con frutas. 
 - Pastis: Un licor de anís, a menudo utilizado en la cocina provenzal para guisos o marinados de mariscos. 
+
+## Consejos
+- Ingredientes esenciales:
+Ten a mano mantequilla de buena calidad, quesos franceses variados y hierbas frescas como tomillo, perejil y laurel. 
+- Fondos y caldos: Aprende a preparar fondos de carne, pescado o vegetales, ya que son la base de muchas salsas y guisos. 
+- Salsas: Dominar la preparación de salsas clásicas como la bechamel, la holandesa o la vinagreta es clave para la cocina francesa. 
+- Técnicas de cocción: Explora técnicas como el blanqueado, el glaseado o el grillado para darle variedad a tus platos. 
+- Explora los mercados: Visita mercados locales para descubrir ingredientes frescos y especialidades regionales. 
+- Prueba platos tradicionales: Atrévete a probar platos emblemáticos como el boeuf bourguignon, la quiche Lorraine o el coq au vin. 
+- Disfruta del aperitivo y el queso: La pausa para comer y el consumo de queso son parte de la cultura francesa, así que no dudes en incorporarlos a tu experiencia. 
