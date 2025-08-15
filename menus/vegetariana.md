@@ -18,3 +18,11 @@ se centra en platos que excluyen carne, aves y pescado, utilizando principalment
 - Aguas frescas: Agrega frutas frescas como pepino, limón, o fresas al agua para crear bebidas refrescantes y naturales. También puedes probar con agua de chía y limón para un aporte extra de nutrientes, según SOW.cl. 
 - Bebidas calientes: Para el invierno, puedes disfrutar de un latte de calabaza casero o un matcha latte con leche vegetal, según Almalibre Açaí House. 
 - Bebidas alcohólicas: La mayoría de las bebidas alcohólicas son aptas para vegetarianos, incluyendo el vino, la cerveza y licores como ginebra, vodka, y ron. Sin embargo, es importante verificar que no contengan aditivos de origen animal, según La Guía Veg. 
+
+## Consejos
+- Planificación: Elabora un plan de comidas para asegurar una dieta equilibrada y evitar deficiencias nutricionales, especialmente al principio. 
+- Ingredientes clave: Familiarízate con ingredientes como tofu, tempeh, seitán, quinoa, legumbres y diferentes tipos de verduras y frutas. 
+- Reemplazos: Experimenta con sustitutos de la carne en tus recetas favoritas, como tofu en fajitas o frijoles en chili. 
+- Diversificación: Busca inspiración en libros de cocina vegetarianos, sitios web y restaurantes para ampliar tu repertorio culinario. 
+- Proteínas: Combina cereales con legumbres para obtener proteínas completas, por ejemplo, arroz con lentejas o frijoles con tortillas de maíz. 
+- Hierro: Asegúrate de incluir alimentos ricos en hierro como legumbres, espinacas, frutos secos y cereales fortificados, y combínalos con fuentes de vitamina C para mejorar la absorción. 
