@@ -15,3 +15,14 @@ abarca una amplia gama de técnicas y estilos culinarios destinados a preparar y
 - Bebidas sin alcohol: Para quienes prefieren opciones sin alcohol, el agua con gas o las aguas saborizadas son refrescantes y pueden ser una alternativa a las bebidas alcohólicas.
 - Vinos blancos: Aunque menos tradicionales, algunos vinos blancos con cuerpo, como un Chardonnay, pueden maridar bien con ciertos cortes de carne roja. 
 - Vinos rosados: Los vinos rosados son versátiles y pueden ser una buena opción para acompañar platos de carne más ligeros o con toques dulces.
+
+## Consejos
+- Atemperar la carne: Sacar la carne del refrigerador unos 30 minutos antes de cocinarla ayuda a que se cocine de manera más uniforme. 
+- Utensilios adecuados: Utiliza pinzas o espátulas para voltear la carne, evitando perforarla con tenedores, lo que puede liberar jugos. 
+- Precalentar la superficie: Asegúrate de que la parrilla o sartén estén bien calientes antes de colocar la carne para un sellado adecuado. 
+- Control de temperatura: Cocina la carne a la temperatura deseada (poco hecha, término medio, tres cuartos, bien cocida) utilizando un termómetro de cocina para mayor precisión. 
+- Salado: En guisos y cocidos, sala la carne antes de cocinarla; en la plancha, brasa o parrilla, sala al final para evitar que se seque. 
+- Métodos de cocción saludables: Asar a la parrilla, hornear, cocinar al vapor o en sartén son opciones más saludables que freír. 
+- Marinado con enzimas: La papaya y la piña contienen enzimas que ablandan la carne. Utiliza su zumo o frota la carne con trozos de fruta durante 30 minutos a una hora. 
+- Dejar reposar: Después de cocinar, deja reposar la carne cubierta con papel de aluminio durante unos minutos para que los jugos se redistribuyan, lo que resulta en una carne más jugosa. 
+Evitar la contaminación cruzada: No uses los mismos utensilios para carne cruda y cocida sin lavarlos adecuadamente. 
